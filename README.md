@@ -8,3 +8,10 @@
 
 
 <img width="1280" height="849" alt="image" src="https://github.com/user-attachments/assets/769e2231-2264-4222-a804-85ed21c88442" />
+
+*하이
+*하이
+
+1. 히히
+2. 키키
+3. 풉풉
